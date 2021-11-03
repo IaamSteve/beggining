@@ -1,12 +1,12 @@
 # begginings
-asdx3
-asdasdasd
-noicee
-niice
-:DD
-:O :L :O
-# =) :P
+asdx5
+asdasdasdkkk
+noicee is noice
+niice is nice
+:DD is :D
+:O :L :O :/
+# =) :P :O
 de egyedi lmao :D
-# ww
-222
-#.
+# ww is World War
+222 is 2*2*2
+#.,
