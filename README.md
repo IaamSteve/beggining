@@ -7,3 +7,5 @@ nice
 :O :L
 # =) :P
 de egyedi lmao :D
+# ww
+222
