@@ -1,8 +1,8 @@
-# beggining
+# begginings
 asd
 asdasd
 noice
 nice
 :D
-:O
-# =)
+:O :L
+# =) :P
