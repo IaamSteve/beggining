@@ -6,3 +6,4 @@ nice
 :D
 :O :L
 # =) :P
+de egyedi lmao :D
