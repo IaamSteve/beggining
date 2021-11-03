@@ -19,4 +19,4 @@ de egyedi lmao :D
 # ww
 222
 #.
-#14
+# 14
