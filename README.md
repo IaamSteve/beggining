@@ -1,6 +1,6 @@
-# beggining
+# begginings
 asd
 asdasd
 :D
-:O
-# =)
+:O :L
+# =) :P
