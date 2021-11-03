@@ -1,9 +1,9 @@
 # begginings
-asd
-asdasd
-noice
-nice
-:D
-:O :L
+asdx3
+asdasdasd
+noicee
+niice
+:DD
+:O :L :O
 # =) :P
 de egyedi lmao :D
